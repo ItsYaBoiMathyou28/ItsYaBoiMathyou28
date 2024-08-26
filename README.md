@@ -2,7 +2,7 @@
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on stuff
-- 📫 How to reach me mathyou28yt@gmail.com ig
+- 📫 How to reach me 
 
 <!---
 ItsYaBoiMathyou28/ItsYaBoiMathyou28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
